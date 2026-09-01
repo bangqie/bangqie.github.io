@@ -1,1 +1,1 @@
-# bangqie.github.io
+# bangqie.com
